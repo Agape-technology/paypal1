@@ -1,5 +1,5 @@
 olamide
-wale
+akinwale
 titi
 tobi
 temi
